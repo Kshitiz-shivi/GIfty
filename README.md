@@ -1,2 +1,2 @@
-# Proposal
-It is a proposal which she can't reject
+# Itna mat dar Mai Sambhal Lunga 
+Bus Tu Bharosa kar
